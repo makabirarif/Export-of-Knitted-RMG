@@ -1,1 +1,1 @@
-# Export-of-Knitted-RMG-from-Bangladesh
+# Export-of-Knitted-RMG
